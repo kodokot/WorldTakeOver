@@ -1,2 +1,2 @@
 # WorldTakeOver
-Plan of world takeover
+Plan of takeover of the world
